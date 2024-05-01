@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @MakotoDeveloper
 - 👀 I’m interested in Ramen.
 - 🌱 I’m currently learning Japanese.
-- 💞️ I’m looking to collaborate on nothing.
+- 💞️ I’m looking to collaborate on: exterminate comunism.
 - 📫 How to reach me: beeper.
 - 😄 Pronouns: No Woke.
 - ⚡ Fun fact: ...
